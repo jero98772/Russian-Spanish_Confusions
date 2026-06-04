@@ -410,6 +410,13 @@ Cuando pronuncias este nombre en español suena a la accion de **"ser gay"**, en
 
 Когда произносишь это имя на испанском, оно звучит как действие **"быть геем"**, На испанский имя **Сергей** переводится как **Серхио(Sergio)**..
 
+
+## Сергеу
+
+Sergey se hospedaba en un hotel, al recepcionista le preguntan por el señor gay
+
+Сергей остановился в гостинице. У администратора спросили о господине Гее.
+
 ---
 
 <br>
